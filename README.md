@@ -1,4 +1,3 @@
-Here’s a clean and professional GitHub profile README template you can use to create an engaging intro page:
 
 ---
 
